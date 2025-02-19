@@ -16,3 +16,5 @@ Perhaps, the greatest realization is that the tree isn’t your enemy. It’s no
  
 > The Bacardy Black - 3 Pegs with Diet coke
 > Soon to be 4 🍻
+
+> In collaboration with ChatGPT

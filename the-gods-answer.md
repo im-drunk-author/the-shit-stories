@@ -28,3 +28,5 @@ As the God’s smile lingered, the protagonist felt a void growing within him. T
 He could not tell. The questions that once gave him purpose now twisted into a never-ending spiral of doubt. And the worst part? The silence that followed.
 
 For the first time, he realized—he had no answers. And perhaps, there were none to be found.
+
+> In collaboration with ChatGPT
