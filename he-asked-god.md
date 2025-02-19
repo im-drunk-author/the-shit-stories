@@ -1,3 +1,6 @@
+[🏠](./README.md)
+---
+
 # He did asked the god.
 
 Oh god, he did knew that you are not in a mood to answer him. but he had questions, He is not expecting any anwsers per se.
